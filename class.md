@@ -1,0 +1,2 @@
+Ricardo Altieri
+Meta Database Engineer Professional Certificate
